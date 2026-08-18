@@ -6,7 +6,7 @@
 
 I'm a roleplayer and yumeshipper!
 </p>
-19 • she/they • Genderfluid
+19 • she/they • Genderfluid • INFJ • Black
 
 Taken ˚ʚ♡ɞ˚
 
