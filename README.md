@@ -28,7 +28,7 @@ I don't bite, feel free to int! ♡
 
 ## ♡ MAIN PONIES
 
-Nagito • Gundham • Kazuichi • Katsuki • Eijiro • Douma • Akaza • IRL • OCs
+Nagito • Gundham • Kazuichi (if you are familiar with the schizophrenic Kazuichi, that was me.) • Katsuki • Eijiro • Douma • Akaza • IRL • OCs
 
 ## ✦ INTERESTS
 
