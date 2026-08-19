@@ -24,6 +24,8 @@ I don't bite, feel free to int! ♡
 
 **Ask for ships before int.**
 
+Yes, some of my skins are black! If there is an issue with that, please either leave it be or block me. Or I'll block you if you make it an issue.
+
 **DNI:** homophobes/transphobes, racists, TCOAAL fans, Komahina, Doumaka, Bakudeku.
 
 ## ♡ MAIN PONIES
