@@ -18,7 +18,7 @@ Taken ˚ʚ♡ɞ˚
 
 **C+H freely!** ♡  
 
-## ✦ BYF
+## ✦ BYI
 
 I don't bite, feel free to int! ♡
 
