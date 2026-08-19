@@ -4,8 +4,10 @@
 <p align="center"> <img width="400" height="147" alt="image" src="https://github.com/user-attachments/assets/a6968cea-1325-4447-8921-62f31c810779" />
 
 
-<p align="center"> ## ♡ ABOUT ME
 
+<p align="center">
+  <strong>♡ ABOUT ME ♡</strong>
+</p>
 <p align="center"> I'm a roleplayer and yumeshipper! (Doubles feel free to int!)
 </p>
 <p align="center"> 19 • she/they • Genderfluid • INFJ • Black
@@ -22,11 +24,13 @@
 
 <p align="center"> I don't bite, feel free to int! ♡
 
-<p align="center"> **Ask for ships before int.**
+<p align="center">
+  <strong>♡ Ask ships before int! ♡</strong>
+</p>
 
 <p align="center"> Yes, some of my skins are black! If there is an issue with that, please either leave it be or block me. Or I'll block you if you make it an issue.
 
-<p align="center"> (｡- .•) **DNI:** homophobes/transphobes, racists, TCOAAL fans, Komahina, Doumaka, Bakudeku.
+<p align="center"> (｡- .•) <strong>DNI:</strong> homophobes/transphobes, racists, TCOAAL fans, Komahina, Doumaka, Bakudeku.
 
 ## ♡ MAIN PONIES
 
@@ -38,9 +42,9 @@
 
 ## ♡ USUALLY LOCATED...
 
-<p align="center"> **18+ Server:** TFC, Hoyo
+<p align="center"> <strong>18+ Server:</strong> TFC, Hoyo
 
-<p align="center"> **Safe Server:** KNY, MHA, Danganronpa, Hoyo
+<p align="center"> <strong>Safe Server:</strong> KNY, MHA, Danganronpa, Hoyo
 
 <p align="center"> ---
 
