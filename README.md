@@ -4,7 +4,7 @@
 
 ## ♡ ABOUT ME
 
-I'm a roleplayer and yumeshipper!
+I'm a roleplayer and yumeshipper! (Doubles feel free to int!)
 </p>
 19 • she/they • Genderfluid • INFJ • Black
 
@@ -18,7 +18,7 @@ Taken ˚ʚ♡ɞ˚
 
 **C+H freely!** ♡  
 
-## ✦ BYI
+## ✦ BYI ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
 
 I don't bite, feel free to int! ♡
 
@@ -26,7 +26,7 @@ I don't bite, feel free to int! ♡
 
 Yes, some of my skins are black! If there is an issue with that, please either leave it be or block me. Or I'll block you if you make it an issue.
 
-**DNI:** homophobes/transphobes, racists, TCOAAL fans, Komahina, Doumaka, Bakudeku.
+(｡- .•) **DNI:** homophobes/transphobes, racists, TCOAAL fans, Komahina, Doumaka, Bakudeku.
 
 ## ♡ MAIN PONIES
 
@@ -34,7 +34,7 @@ Nagito • Gundham • Kazuichi (if you are familiar with the schizophrenic Kazu
 
 ## ✦ INTERESTS
 
-Danganronpa • MHA • TFC • DE • DDLC • Gachiakuta • Hell's Paradise • Castlevania • Soul Eater • Black Butler • Overwatch • UT/DR • HSR • KPDH • Hellaverse
+Dead by Daylight, Danganronpa • MHA • TFC • DE • DDLC • Gachiakuta • Hell's Paradise • Castlevania • Soul Eater • Black Butler • Overwatch • UT/DR • HSR • KPDH • Hellaverse
 
 ## ♡ USUALLY
 
